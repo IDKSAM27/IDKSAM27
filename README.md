@@ -1,4 +1,6 @@
-## Hi there 👋
+# Showcase (⁠◠⁠‿⁠◕⁠)
+
+### Too lazy for this shi*, will do it later
 
 <!--
 **IDKSAM27/IDKSAM27** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
